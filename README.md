@@ -1,0 +1,1 @@
+# Tecnicas3Q2026
